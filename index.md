@@ -1,37 +1,13 @@
-## Welcome to GitHub Pages
+## IINC.COIN - a Emercoin Domain by 
+## ![image](https://user-images.githubusercontent.com/37987346/104695697-2431c480-56db-11eb-8c43-0c1e00398c2e.png) [INNER I NET COMPANY](http://shapereality.innerinetcompany.hns.to/) | We are here to assist you with Handshake(HNS) in 2021. Handshake is decentralized DNS to the internet like Bitcoin is to money. [Official.OwnTheWeb3/](http://official.owntheweb3.hns.to/), we ["Shape Reality"](http://innerinetcompany.shapereality.hns.to/) by establishing the "I" as the center of gravity. We are changing the world through the unchanging "I." Decentralized DNS websites with Handshake(HNS) blockchain root level domains that direct one to the root of perception, the Source Within, what we term our "I." Handshake helps us resolve self-sovereign identity by allowing true ownership of Digital Internet Property.
+| [SERVE THE LIGHT](http://workinthedark.servethelight.hns.to/) | [HNS-DOMAINS](http://home.hns-domains.hns.to/) | [Contact](mailto:innerinetcompany@gmail.com) | [SHOP.INW](http://shop.inw.hns.to/) | [IINC](http://dlink.innerinetcompany.hns.to/) | [Facebook](https://facebook.com/innerinetcompany) | [@HNSDOMAINS](https://twitter.com/hnsdomains)
+ [![image](https://user-images.githubusercontent.com/37987346/103435699-6be72500-4be0-11eb-8264-7dcb24c14987.png)](http://shapereality.innerinetcompany.hns.to/)
+We are changing the world wide web one I and Handshake at a time.
+- "Knowledge is a possession of the mind, Truth is experience of the soul. The "I" of the material mind perceives only a world of factual knowledge, but the "I" of spiritualized intellect discerns a world of true values." [Urantia Book](https://youtu.be/U8QF2u5aw5o?t=1719)
+## ☀Notitiam In Conscientia(Knowledge in awareness)☀  <--   --   -->                                                                                       🌜Ignotum Est Conscii(Aware of the unknown)🌛     
+# [Jesus replied: “ ‘Love the Lord your God with all your heart and with all your soul and with all your mind.’ This is the first and greatest commandment. And the second is like it: ‘Love your neighbor as yourself.’ All the Law and the Prophets hang on these two commandments.”](https://www.bible.com/bible/111/MAT.22.37-40.NIV)
+# "I" As The Center Of Gravity Is The Seat Of Unity, At The Center One Can See The Infinite.
+ # [Own The Web 3](http://official.owntheweb3.hns.to/) we Consciously CHOOSE to Bend and [SHAPE Reality](http://innerinetcompany.shapereality.hns.to/) from the [Root of Perception](http://findusontheweb.innericompany.hns.to/) while customizing [The Root Zone](http://therootzone.hns.to/) File of the Internet with our [HNS-DOMAINS](http://home.hns-domains.hns.to/).
+# The "I" of All-Conquering Spirit, the Omniscient, Omnipotent and Omnipresent Spark Within us is a drop of burning desire, rippling into a wave as The Great Awakening of the individual soul. Choose To BE AWAKE! NOW, presence a blaze, the All-Consuming Flame is seen as self-expression flowing from The Holy Spirit.
 
-You can use the [editor on GitHub](https://github.com/BeeChains/coin/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
-
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
-
-### Markdown
-
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/BeeChains/coin/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+# Jesus said [34 The light of the body is the eye: therefore when thine eye is single, thy whole body also is full of light; but when thine eye is evil, thy body also is full of darkness](https://www.kingjamesbibleonline.org/Luke-11-34/) 
